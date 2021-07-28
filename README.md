@@ -1,1 +1,0 @@
-# sheta-research.github.io
